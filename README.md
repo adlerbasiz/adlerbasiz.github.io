@@ -1,1 +1,0 @@
-# adlerbasiz.github.io
